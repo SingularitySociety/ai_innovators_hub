@@ -1,1 +1,1 @@
-# ai_innovators_hub
+# AI Innovators Hub
